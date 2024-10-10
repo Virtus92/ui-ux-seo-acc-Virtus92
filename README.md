@@ -3,8 +3,9 @@
 
 **Presentation Media:** Powerpoint Presentation (pick whichever software you prefer)  
 **Duration:** 15 min (keep it short and simple! Pick the information you find relevant and tell us why)  
-**Presentation Language:** English, slides in English as well.  
-**Topic:** Choose one of the topics listed below. (everyone should cover a different topic)  
+**Presentation Language:** English or German, whatever you prefer.
+**Topic:** Choose one of the topics listed below. (everyone should cover a different topic)
+**Upload your slide set to the "Web Präsentationen Channel" in Teams after your presentation.**
 
 ---
 
